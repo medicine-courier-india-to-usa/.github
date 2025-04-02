@@ -1,4 +1,4 @@
-<h2>Medicine Delivery from India to USA – Safe and Fast Delivery through Courier24x7</h2>
+<h2>Medicine Courier from India to USA – Safe and Fast Delivery through Courier24x7</h2>
 
 Need to send medicines from India to the USA? With Courier24x7, you can do it with ease and without hassle. We know how much your loved ones depend on getting their medicines delivered on time, so we are <b>medicine courier India to USA</b> experts. From prescription medicines, life-saving medicines, to Ayurvedic medicines, we have a safe, smooth, and on-time delivery process.
 
